@@ -5,6 +5,8 @@ It is not a simple script.
 
 ZYROLATOR invents resilient adult personalities that compound experience across isolated agents.
 
+CA Pump.Fun : BAfRj6nfE379tNTSxQk6gBeaSzoHe5eECox1Kjkopump
+
 ---
 
 ## 🧠 What Is ZYROLATOR?
